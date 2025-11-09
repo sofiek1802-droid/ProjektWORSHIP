@@ -1,1 +1,1 @@
-# ProjektWORSHIP
+# WORSHIP
